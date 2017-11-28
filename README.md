@@ -1,3 +1,3 @@
 # Sugarlabs
 Hello Sugar labs!
-Hello! i am Amber, i'm 14!
+Hello! my name is Amber, i'm 14!I enjoy sports and art.
